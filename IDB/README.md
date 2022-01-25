@@ -1,1 +1,1 @@
-IDB Arhive GTA-SA / SA-MP R1-R3
+IDB Archive GTA-SA / SA-MP R1-R3
